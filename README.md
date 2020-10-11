@@ -1,1 +1,1 @@
-# Photography is More Than Just an Art
+# **Photography is More Than Just an Art**
