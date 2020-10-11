@@ -10,4 +10,4 @@ Taken as I was walking through a semi-wintery forest in Big Bear. This was aroun
 ![](IMG_8286%20(2).jpg)
 Taken on the same day as the previous picture. I believe this one to be a Blue Jay
 ## My Portfolio!
-Here is a link to the wix website portfolio that I created for my sophmore year photography class: https://chirannd1432.wixsite.com/mysite
+If you wnat too see more of my pictures, feel free to look at the wix website portfolio that I created for my sophmore year photography class: https://chirannd1432.wixsite.com/mysite. 
